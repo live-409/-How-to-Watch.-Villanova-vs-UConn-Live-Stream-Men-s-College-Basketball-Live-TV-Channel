@@ -12,14 +12,14 @@ Game Time: 6:30 p.m. ET
 
 TV: FOX Sports 1
 
-Live stream the Villanova at UConn game on Fubo: Start your free trial now!
+**[Live stream the Villanova at UConn game on Fubo: Start your (free trial now!)](https://special.fanfanatics.live/?refd_by=usa25)**
 
 
 The Wildcats come into Tuesday’s game looking to avoid a second straight loss after they lost to Providence on the road on Saturday 75-62.
 
 LIVE SPORTS & TV WITHOUT CABLE
 No commitment. Cancel anytime.
-Watch Now
+**[Watch Now Live>>](https://special.fanfanatics.live/?refd_by=usa25)**
 
 The loss to the Friars snapped a three-game winning streak and dropped them to 15-11 overall and 8-7 in the Big East.
 
